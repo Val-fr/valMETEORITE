@@ -5,3 +5,4 @@
 > Do not change the name of the resource at least out of respect to me.
 > 
 > Discord: _Val#6145 / Copyright Val
+> - Views
